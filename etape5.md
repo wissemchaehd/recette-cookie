@@ -1,0 +1,1 @@
+Beurrer une plaque allant au four et former les cookies sur la plaque.
